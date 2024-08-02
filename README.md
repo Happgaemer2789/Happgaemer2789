@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Happgaemer2789
 - 👀 I’m interested in video Editing or VFX designing and graphic designing
-- 🌱 I’m currently learning How to how to crack Wi-Fi password
+- 🌱 I’m currently learning How to crack Wi-Fi password
 - ⚡ Fun fact i am from india 🇮🇳
 - 🎮 I love gaming also 
 - 🇯🇵 I also love anime and a car guy'🏎️
